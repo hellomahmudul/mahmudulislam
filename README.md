@@ -1,4 +1,4 @@
 # mahmudulislam
-iam a self learner.
-i used this website for my learning purpose.
-the copyright goes to Bedimcode.
+I am a self learner.
+I used this website for my learning purpose.
+The original copyright goes to ©️Bedimcode.
